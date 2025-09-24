@@ -1,0 +1,2 @@
+# 1Konspekt_Kirill_Kononenko_IKTPV25_2
+Konspekt
